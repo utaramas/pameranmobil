@@ -68,3 +68,11 @@ Bersyukur padaNya ternyata hobi satu ini tidak hilang, pernah baca di suatu temp
 Semoga hobi ini bisa membantu banyaaaaak orang 🙏
 
 <hr/>
+
+### Trading ala nid: mungkinkah trader for living ?
+
+Ada dong... Malahan jadi ajang berbagi juga, sebagian penghasilan trader dijadikan warung berkah, dimana 1 porsi senilai 25 rb dijual 1000 rupiah saja untuk yg membutuhkan, kekurangannya dari profit forex, dan setiap hari ada 2 warung dimana setiap warung bebrbagi 100 porsi makanan.
+
+Sehari-hari sang trader hanyalah ibu rumah tangga biasa, yang sesekali mengumpulkan teman-teman untuk mengajari gratisan forex trading.
+
+<hr/>
