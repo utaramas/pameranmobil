@@ -30,6 +30,7 @@ Yuk bersama2 merain profit
 ### Trading ala nid: Salah satu yang membuat saya merasa tetap diberkahi
 
 Salah satu yang membuat saya merasa tetap diberkahi, walaupun keadaan fisik terkadang memaksa untuk hanya di tempat tidur, tapi pemasukan Alhamdulillah tidak terganggu karena saya menggunakan gadget sebagai mata pencaharian dengan forex tradingnya.
+
 Dulu ketika kerja merasa bersyukur karena di tengah-tengah kerja saya punya “mainan”, kini kejenuhan dan kebosanan dihapuskan dengan ini.
 
 Bagi yang berminat untuk mempelajari yukkk luangkan waktu tanggal 11 April ini...❤️❤️❤️
@@ -75,5 +76,20 @@ Semoga hobi ini bisa membantu banyaaaaak orang 🙏
 Ada dong... Malahan jadi ajang berbagi juga, sebagian penghasilan trader dijadikan warung berkah, dimana 1 porsi senilai 25 rb dijual 1000 rupiah saja untuk yg membutuhkan, kekurangannya dari profit forex, dan setiap hari ada 2 warung dimana setiap warung bebrbagi 100 porsi makanan.
 
 Sehari-hari sang trader hanyalah ibu rumah tangga biasa, yang sesekali mengumpulkan teman-teman untuk mengajari gratisan forex trading.
+
+<hr/>
+
+### Trading ala nid: Flashback 15 tahun yang lalu....
+
+Sampai 2 bulan yang lalu, kalau ada yang mempertanyakan kapan saya mulai mengajar trading forex, saya hanya bisa menjawab 15 tahun yang lalu.
+
+Yang bertanyapun antara percaya dan tidak....
+Saat itu sahabat-sahabat terdekat yang pertama kali saya ajarkan trading forex. Tapi karena kendala saat itu sangat beragam, koneksi internet belum bagus, gadget belum secanggih sekarang, mundur teratur semuanya.
+
+Dan sejak 3 tahun belakangan ini, sejak saya memberanikan diri mengajar para ibu-ibu untuk melek forex, mereka hanya mengamati saja, alhamdulillah satu demi satu tertarik dan...menarik nafas lega sekarang sahabat-sahabat terdekat saya mulai merasakan manfaatnya trading forex, jadiiii bisa gantian saya yang ditraktir 😃😃😃.
+
+Perjuangan 15 tahun itu akhirnya berbuah manis....alhamdulillah ❤️❤️❤️
+
+Ingin rasanya colek teman-teman 15 thn yang lalu, kutunggu kalian, tidak pernah lelah mengajarkan ulang kok...yukk say, maju bareng ❤️
 
 <hr/>
