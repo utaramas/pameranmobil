@@ -93,3 +93,15 @@ Perjuangan 15 tahun itu akhirnya berbuah manis....alhamdulillah ❤️❤️❤�
 Ingin rasanya colek teman-teman 15 thn yang lalu, kutunggu kalian, tidak pernah lelah mengajarkan ulang kok...yukk say, maju bareng ❤️
 
 <hr/>
+
+### Trading ala nid: gud morning beautiful people
+
+Mandiri finansial tinggal selangkah lagi.
+
+Bisa untuk bapak dan ibu calon resign dari kantor atau ibu-ibu yang ingin menambah penghasilan tanpa meninggalkan kesibukan sehari-hari.
+
+Pelatihan gratis, bimbingan via whatsapp setelahnya juga gratis...☺️☺️☺️
+
+Trading for living ? Why not....
+
+<hr/>
