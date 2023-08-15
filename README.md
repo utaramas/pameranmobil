@@ -105,3 +105,27 @@ Pelatihan gratis, bimbingan via whatsapp setelahnya juga gratis...☺️☺️�
 Trading for living ? Why not....
 
 <hr/>
+
+### Trading ala nid: My dream...
+
+Bermula dari bulan October 2017, mengajak teman-teman belajar forex.
+
+Dari yang ibu-ibu gaptek bikin ingin garuk-garuk tembok.
+Sampai ibu-ibu yang ngga mau baca lengkap tapi maunya nanya.
+
+Dari yang loss ada yang marah padahal namanya investasi.
+Sampai ada yang profit tapi diem diem aja karena entah ini kenapa ya, kalau loss teriak kalau profit diam saja.
+
+Semalam perdana membentuk grup penyedia signal, all emak-emak ❤️❤️❤️ from zero to hero, menghasilkan 24 signal dan semua close profit dan clean sheet.
+
+Ah dasar emak-emak, awalnya takut takut kasih signal belakangan bagai buldozer semua pip dan peluang diserbu
+
+My dream...semua bisa trading, jadi lebih banyak waktu untuk keluarga dan diri sendiri
+Alhamdulillah diberi kemudahan demi kemudahan.
+
+Yukkkk belajar trading dan bwrpenghasilan dolar.
+GRATIS!!!
+
+Trading gotong royong ah Indonesia sekali 🙏🙏🙏
+
+<hr/>
