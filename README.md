@@ -129,3 +129,15 @@ GRATIS!!!
 Trading gotong royong ah Indonesia sekali 🙏🙏🙏
 
 <hr/>
+
+## Trading ala nid: Alhamdulillah, tidak minta banyak dari para peserta account extrem
+
+Hanya ini yang sangat saya harapkan. Berbagi dan terus berbagi...tanpa merugikan orang atau menusuk orang lain.
+Menyebarkan kebaikan...tanpa harus meninggikan diri tapi merendahkan orang lain.
+
+Boleh ya saya bangga dengan wanita-wanita hebat ini 🙏
+
+Alhamdulillah
+#tradingalanid
+
+<hr/>
