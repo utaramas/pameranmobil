@@ -141,3 +141,17 @@ Alhamdulillah
 #tradingalanid
 
 <hr/>
+
+### Trading ala nid: Jumat berkah...
+
+Waktunya berbagi dan mensyukuri seluruh berkah Allah.
+
+Berkumpul bersama wanita-wanita pejuang yang hebat delajar forex trading, demi mendapatkan penghasilan tambahan dalam bentuk dolar.
+
+Ada 4 ibu yang hadir dengan membawa anak, bahkan 2 orang diantaranya belajar sambil menggendong bayi. Semua menginspirasi saya, kalau mereka saja bisa semangat kenapa saya tidak. Dan acara ini gratis untuk mereka.
+
+Sementara di warung berkah, menu hari Jumat adalah nasi soto, terharu dengan kehadiran para buruh gali yang dengan sungkan menolak duduk di meja karena menyadari badan kotor, merelakan diri duduk di lantai demi nasi lengkap dan minum seharga Rp 1000.
+
+Alhamdulillah...
+
+<hr/>
