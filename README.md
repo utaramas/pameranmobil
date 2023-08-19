@@ -155,3 +155,13 @@ Sementara di warung berkah, menu hari Jumat adalah nasi soto, terharu dengan keh
 Alhamdulillah...
 
 <hr/>
+
+### Trading ala nid: Buat forex copy karena untuk membantu yang ingin dapat penghasilan tambahan tapi ngga mau repot
+
+Dan sekarang...jasa terbaru dari warung broker, rumah sakit forex, untuk membantu memperbaiki kondisi account-account yang hampir mc.
+
+Alhamdulillah...market berbaik hati selalu.
+
+Selama masa perbaikan, tidak ada posisi dicut loss, profit tetap bisa diambil, bukan profit utk cut loss....🙏
+
+<hr/>
