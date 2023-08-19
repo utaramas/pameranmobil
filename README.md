@@ -165,3 +165,14 @@ Alhamdulillah...market berbaik hati selalu.
 Selama masa perbaikan, tidak ada posisi dicut loss, profit tetap bisa diambil, bukan profit utk cut loss....🙏
 
 <hr/>
+
+### Trading ala nid: Naik kelas...
+
+Tradingnya dapet approval international...
+Bisa jualan ke siapapun arround the world, tanpa repot
+
+https://www.mql5.com/en/users/nikenid
+
+#tradingalanid
+
+<hr/>
