@@ -176,3 +176,17 @@ https://www.mql5.com/en/users/nikenid
 #tradingalanid
 
 <hr/>
+
+### Trading ala nid: Berkah Jumat....
+
+Sepulang dari Padang, biasanya memilih naik S###bird, tapi kali ini adanya T***express. Surprise pengemudinya seorang ibu, sepertinya seumuran saya, karena anak-anaknya seumuran Kevin Cealy.
+
+Mendengar kisah hidup dan perjuangannya, jadi maluuuu......saya kurang berjuang dibandingkan ibu pejuang ini.
+
+Dan mendengar itu oleh Bapak Suami langsung dinasihatin “Ibu, jadi murid istri saya saja”
+Alhamdulillah diajak belajar trading forex dan sangaaat berminat.
+Berkah Allah, lagi-lagi diberi kemudahan demi kemudahan.
+
+#tradingalanid 
+
+<hr/>
