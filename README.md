@@ -190,3 +190,19 @@ Berkah Allah, lagi-lagi diberi kemudahan demi kemudahan.
 #tradingalanid 
 
 <hr/>
+
+### Trading ala nid: Selalu ada bala bantuan dikirim olehNya
+
+Setiap minggu tiada hari tanpa puji syukur dari para peserta forexcopy, yang belum bisa trading tapi sudah duluan meraih profit yang tidak sedikit.
+
+Setiap minggu bertambah terus para follower forex copy dan makin bertambah cerita manis.
+
+Makin banyak cinta pada saya, padahaaal i am not alone, dibelakang saya ada jasa pembuatan EA sesuai strategi saya. Yang saya percayakan penuh strategi demi strategi untuk diterjemahkan menjadi robot andalan para follower forex copy saya.
+
+Hebatnya Hendra Hermawan sangat amanah walau banyak yang penasaran kaya apakah ea saya itu ?
+
+Alhamdulillah, cinta Allah kepada saya, selalu dipermudah
+
+#tradingalanid
+
+<hr/>
